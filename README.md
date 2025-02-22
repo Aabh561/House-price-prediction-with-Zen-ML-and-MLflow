@@ -1,4 +1,4 @@
-Here’s a professional and recruiter-friendly **README** for your project:  
+
 
 ---
 
